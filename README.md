@@ -9,6 +9,6 @@
 ![](https://64.media.tumblr.com/b4aec34f3fc5776a2dc8ff6fa086779a/7bf7ca88a92b27d3-b9/s100x200/df3158733f6e712a09751dfad11a4d8f6459de9a.gifv) 
 ![](https://64.media.tumblr.com/13e6f4d9e7b78a53cdb21a065a05692c/1aefeced37ef47a9-82/s100x200/a24a1677d860ef3d68e48c7228484f8f8fc80742.gifv) 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=dhq0uui4gme0ej90f21jwkzai&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5296a8&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dhq0uui4gme0ej90f21jwkzai&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=dhq0uui4gme0ej90f21jwkzai&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=5296a8&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dhq0uui4gme0ej90f21jwkzai&redirect=true)
 
 [<b>ships.</b>](https://rentry.co/kangel-vox)<br>
