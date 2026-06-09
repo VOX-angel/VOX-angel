@@ -1,7 +1,7 @@
 
 <div align="center">
  
-  ![](https://64.media.tumblr.com/3807c8faa3449b60b2eafacd748e5396/074e8efde5420312-13/s1280x1920/dde9fc47230724342fb168ab781fa84e9f52f358.pnj) 
+  ![](https://64.media.tumblr.com/d4b655d198925bfa94237fbf796ae3ec/d89d2c7c3497dd7f-54/s540x810/f782f6cf6f865d22186c0ea7ad12aaabedc6e30d.pnj) 
 
 
 
